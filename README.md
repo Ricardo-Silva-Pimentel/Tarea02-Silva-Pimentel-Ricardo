@@ -1,4 +1,4 @@
-Ricardo Silva Pimentel, ricardo.silvap@alumnos.uv.cl
+Ricardo Silva , ricardo.silvap@alumnos.uv.cl
 
 Joaquín Martínez, joaquin.martinez@alumnos.uv.cl
 
